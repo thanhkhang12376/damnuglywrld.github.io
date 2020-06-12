@@ -1,1 +1,1 @@
-# damnuglywrld.github.io
+# damnuglywrld.com
